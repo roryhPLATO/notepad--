@@ -1,1 +1,1 @@
-shit man i put the read me in the code folder
+yeah the actual readme is in the code folder ¯\_(ツ)_/¯
